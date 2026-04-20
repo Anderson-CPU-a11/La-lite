@@ -1,1 +1,1 @@
-# La-lite
+# La-Elite
